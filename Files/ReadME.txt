@@ -1,0 +1,1 @@
+Todos os Arquivos BFXR daqui são encontrados em Mp3 ou Wav nas outras pastas
